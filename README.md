@@ -8,4 +8,4 @@
 - 🤔 I’m looking for help with ...
 - 📫 How to contact me: ...kandimalladinesh100@gmail.com
 - ⚡ Fun fact: ...always with mobile
-- Eager to learn: ...Hacking
+- Eager to learn: ...Hacking💻💻
